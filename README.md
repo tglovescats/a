@@ -1,24 +1,28 @@
 > **THE OFFICIAL TRIA.OS DIFFICULTY LIST**
 
+> **INFINITY**
+
+1. ``8.98`` **ECLIPSED SKILL OF DARKNESS** by connornathan2008
+
 > **Eternal**
 
-1. ``7.61`` **The Sin** by S_D1am0nd [13832843365] [https://www.youtube.com/watch?v=TYPNKpdwha4]
+2. ``7.61`` **The Sin** by S_D1am0nd [13832843365] [https://www.youtube.com/watch?v=TYPNKpdwha4]
 
-2. ``7.53`` **Death Corridor** by alex333144, MidnightsCrucible, ssgam_eR [9643234169] [https://www.youtube.com/watch?v=CX30PQC-tVc]
+3. ``7.53`` **Death Corridor** by alex333144, MidnightsCrucible, ssgam_eR [9643234169] [https://www.youtube.com/watch?v=CX30PQC-tVc]
 
-3. ``7.39`` **Ascension to Heaven** by S_D1am0nd [15333842734] [https://www.youtube.com/watch?v=j3IoYLGceXQ]
+4. ``7.39`` **Ascension to Heaven** by S_D1am0nd [15333842734] [https://www.youtube.com/watch?v=j3IoYLGceXQ]
 
-4. ``7.16`` **Hyper Speed** by Marchionne, alex28901 & MalachiLeapYear [13468914338] [https://www.youtube.com/watch?v=p3FuGndl5bM]
+5. ``7.16`` **Hyper Speed** by Marchionne, alex28901 & MalachiLeapYear [13468914338] [https://www.youtube.com/watch?v=p3FuGndl5bM]
 
-5. ``7.11`` **EndZone** by Nightlife Devs [2734427873] [https://www.youtube.com/watch?v=UB4tNo2ShjM]
+6. ``7.11`` **EndZone** by Nightlife Devs [2734427873] [https://www.youtube.com/watch?v=UB4tNo2ShjM]
 
-6. ``7.04`` **Agitato 3.0** by alex28901 [14568951404] [https://www.youtube.com/watch?v=X4fz2XGM2Uo]
+7. ``7.04`` **Agitato 3.0** by alex28901 [14568951404] [https://www.youtube.com/watch?v=X4fz2XGM2Uo]
 
-7. ``7.03`` **Eternal Punishment** by midlecs [6717933469] [https://www.youtube.com/watch?v=qSwJ6ItPugE]
+8. ``7.03`` **Eternal Punishment** by midlecs [6717933469] [https://www.youtube.com/watch?v=qSwJ6ItPugE]
 
-8. ``7.01`` **Cubic Showdown** by MalachiLeapYear [15439085747] [https://www.youtube.com/watch?v=TpS6v_5hBMM]
+9. ``7.01`` **Cubic Showdown** by MalachiLeapYear [15439085747] [https://www.youtube.com/watch?v=TpS6v_5hBMM]
 
-9. ``7.00`` **Nos Astra** by Ethan76167 [12741011292/nos] [https://youtu.be/GEIhjIgeMhU]
+10. ``7.00`` **Nos Astra** by Ethan76167 [12741011292/nos] [https://youtu.be/GEIhjIgeMhU]
 
 > **Divine**
 
