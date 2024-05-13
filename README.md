@@ -22,19 +22,19 @@
 
 > **Divine**
 
-10. ``6.93`` **Derelict Industry** by CN08_ [10738856300] [https://www.youtube.com/watch?v=Jd2jlFv4YYk]
+10. ``6.99`` **Derelict Industry** by CN08_ [10738856300] [https://www.youtube.com/watch?v=Jd2jlFv4YYk]
 
-11. ``6.87`` **Rooms 2** by The Rooms Official Devs [12233103006] [https://www.youtube.com/watch?v=tcpvubF4XXM]
+11. ``6.90`` **Rooms 2** by The Rooms Official Devs [12233103006] [https://www.youtube.com/watch?v=tcpvubF4XXM]
 
-12. ``6.86`` **Backburner** by Accurate_Abilities [14827716361] [https://www.youtube.com/watch?v=3y9V18KJryw]
+12. ``6.83`` **Layers** by Enszo, TWB_92 [8559494055/layers] [https://www.youtube.com/watch?v=Yja6SpZVU_U]
 
-13. ``6.83`` **Layers** by Enszo, TWB_92 [8559494055/layers] [https://www.youtube.com/watch?v=Yja6SpZVU_U]
+13. ``6.81`` **Backburner** by Accurate_Abilities [14827716361] [https://www.youtube.com/watch?v=3y9V18KJryw]
 
 14. ``6.78`` **Kneeling Shore** by tac_taillike [10148804609/kneeling] [https://www.youtube.com/watch?v=ectnMFW5cr0]
 
 15. ``6.76`` **Virus** by Rayhan [13914817715] [https://www.youtube.com/watch?v=p0O6Ow9pe2s]
 
-16. ``6.71`` **Tempestuous Blizzard** by Zerix [11573213410] [https://www.youtube.com/watch?v=ZruAoI524Ac]
+16. ``6.71`` **im not putting tempestous here it sucks** by Zerix [11573213410] [https://www.youtube.com/watch?v=ZruAoI524Ac] (pretend this does not exist)
 
 17. ``6.70`` **Vivid** by Enszo [9953134578/vivid] [https://www.youtube.com/watch?v=4lzsf2e3x5A]
 
@@ -42,7 +42,7 @@
 
 19. ``6.688`` **Halcyon || Orange Sector 2.0** by Literal_Cow [9293714116] [https://www.youtube.com/watch?v=BAyn0JZJbLI]
 
-20. ``6.686`` **Hard Reset** by Cybi [13229449398] [https://www.youtube.com/watch?v=ie5_UvI-Emg]
+20. ``6.686`` **Please hard reset on this map** by Cybi [13229449398] [https://www.youtube.com/watch?v=ie5_UvI-Emg]
 
 21. ``6.65`` **White Void** by CN08_ [13684573360] [https://www.youtube.com/watch?v=jDzAVZJeFuM] 
 
